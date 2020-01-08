@@ -11,4 +11,4 @@ cause you are deep deep into my soul
 You, the sea under starry sky are the same
 So fantastic, so magical and so boundless
 
-访问地址:https://lilovexi.github.io/love/
+表白网站访问地址:https://lilovexi.github.io/love/
